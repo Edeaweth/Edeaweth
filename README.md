@@ -19,6 +19,9 @@ Bildiğim Diller
 
 ## Sosyal Medya
 **[İnstagram](https://www.instagram.com/emir_yaw/)**
+<br>
+<br>
+**[linkedin](https://www.linkedin.com/in/emir-yavuz-a61991229/)**
 
 
 
