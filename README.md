@@ -21,7 +21,7 @@
 >![gif2](https://user-images.githubusercontent.com/92144807/148226077-7202addf-a4f1-44fa-9181-42a83dd01245.gif)
 
 ## Sosyal Medya
-**[İnstagram](https://www.instagram.com/emir_yaw/)**
+**[İnstagram](https://www.instagram.com/emiiryavz/)**
 <br>
 <br>
 **[Linkedin](https://www.linkedin.com/in/emir-yavuz-a61991229/)**
